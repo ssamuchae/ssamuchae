@@ -5,4 +5,6 @@
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀          ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠 󠀠⠀ ⠀ "#1 ᴄʜᴀᴇᴡᴏɴ ꜱɪᴍᴘ"
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀                ⠀󠀠 󠀠⠀ ⠀       stan le sserafim, illit, ive, babymonster, newjeans
+
+![Alternative text here](https://github.com/ssamuchae/ssamuchae/blob/main/16fcc9b2745ddb0c33b4c0afc6f66331-removebg-preview.png)
 ⠀ ⠀ ⠀ ⠀ ⠀
