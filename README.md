@@ -3,4 +3,6 @@
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀   ⠀⠀         ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀![Fearnots Badge](https://img.shields.io/static/v1?label=fearnots&message=1812&labelColor=FDFBF7&color=c8b8a8)
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀          ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠 󠀠⠀ ⠀ "#1 ᴄʜᴀᴇᴡᴏɴ ꜱɪᴍᴘ"
+
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀          ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠 󠀠⠀ ⠀ stan le sserafim, illit, ive, babymonster, newjeans
 ⠀ ⠀ ⠀ ⠀ ⠀
