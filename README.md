@@ -1,1 +1,1 @@
-![Alternative text here](https://i.pinimg.com/736x/cc/d6/c1/ccd6c1f507f9b9ecdee87fa1f29e81fb.jpg)
+![Alternative text here](https://i.pinimg.com/originals/2a/69/41/2a69418a7bccc6b89f7e61f16f3072c9.gif)
