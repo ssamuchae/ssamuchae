@@ -8,9 +8,9 @@
 
 ![Alternative text here](https://github.com/ssamuchae/ssamuchae/blob/main/16fcc9b2745ddb0c33b4c0afc6f66331-removebg-preview.png)
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀bdaycake trio : [@ccggmadness](https://github.com/ccggmadness) , yeva
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀bdaycake trio : [@ccggmadness](https://github.com/ccggmadness) , yeva
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀oomfies : [@CiderAppleseed](https://github.com/CiderAppleseed) , john doe , aqua , xia
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀oomfies : [@CiderAppleseed](https://github.com/CiderAppleseed) , john doe , aqua , xia
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀friends : [@N1TEB0I](https://github.com/N1TEB0I) , kudlik , beetle, retro, muffin, maya
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀friends : [@N1TEB0I](https://github.com/N1TEB0I) , kudlik , beetle, retro, muffin, maya
 ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀                ⠀󠀠 󠀠⠀ ⠀       
