@@ -1,8 +1,8 @@
-![Fun GIF](https://github.com/ssamuchae/ssamuchae/blob/main/2a69418a7bccc6b89f7e61f16f3072c9.gif)
+![Fun GIF](https://github.com/ssamuchae/ssamuchae/blob/main/87ae2fd484217ff14c6f0f28473c8ccd.gif)
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀   ⠀⠀         ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀![Fearnots Badge](https://img.shields.io/static/v1?label=fearnots&message=1812&labelColor=FDFBF7&color=c8b8a8)
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀          ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠 󠀠⠀ ⠀ "#1 ᴄʜᴀᴇᴡᴏɴ ꜱɪᴍᴘ"
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀          ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠 󠀠⠀ ⠀ "#1 ᴄʜᴀᴇᴡᴏɴ & ʏᴜᴊɪɴ ꜱɪᴍᴘ"
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀                ⠀󠀠 󠀠⠀ ⠀       stan le sserafim, illit, ive, babymonster, newjeans
 
