@@ -1,4 +1,4 @@
- ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀          ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠 󠀠⠀ ⠀ ![Fun GIF](https://github.com/ssamuchae/ssamuchae/blob/main/87ae2fd484217ff14c6f0f28473c8ccd.gif)
+ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀          ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠 󠀠⠀ ⠀ ![Fun GIF](https://github.com/ssamuchae/ssamuchae/blob/main/2b026796f5d4dd4365b154da05d1b61a.gif)
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀   ⠀⠀         ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀![Fearnots Badge](https://img.shields.io/static/v1?label=fearnots&message=1812&labelColor=FDFBF7&color=c8b8a8)
 
