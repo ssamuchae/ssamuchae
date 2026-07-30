@@ -6,5 +6,5 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀ ⠀  ⠀ ⠀    ⠀⠀                ⠀󠀠 󠀠⠀ ⠀       stan le sserafim, illit, ive, babymonster, newjeans
 
-![Alternative text here](https://github.com/ssamuchae/ssamuchae/blob/main/fc7997674357df52afc62f8b89e9ed27-removebg-preview.png)
+![Alternative text here](https://github.com/ssamuchae/ssamuchae/blob/main/1911bd3bf0ceda96143b50683afb39d5-removebg-preview.png)
 ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀                ⠀󠀠 󠀠⠀ ⠀       
