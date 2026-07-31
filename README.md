@@ -19,6 +19,11 @@ $\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀⠀૮ • ﻌ - ა⠀⠀minor . . . les
 $\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀isfp ,, dive ,, fearnot + ⠀𐂯}$
 
 ⠀⠀⠀⠀⠀ [strawpg](https://ssamuchae.straw.page/)$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⋆}$⠀⠀⠀⠀[prns.pg](https://en.pronouns.page/@feralcritters)
+<details>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ <summary>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  pt info</summary>
+You can add text within a collapsed section.
+
+</details>
 
   </dl>
 </div>
