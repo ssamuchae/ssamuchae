@@ -1,22 +1,26 @@
 <p align="center">
   <img src="./7d81cab59c7fdacbb9fa73982d406a8b (1).jpg" width="100%" alt="Header Banner">
-  
+</p>
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀![ssamjin](https://img.shields.io/badge/ssamjin𝜗𝜚;-1252-ffffff?style=flat&labelColor=7fd955&color=f5f0dd)
-<img src="./057b39a6e9e0a6070563e7d1fe44e378-removebg-preview.png" width="280" align="left">
+<p align="center">
+  <img src="https://img.shields.io/badge/ssamjin%F0%9D%9C%97%F0%9D%9C%9A;-1252-ffffff?style=flat&labelColor=7fd955&color=f5f0dd" alt="ssamjin badge">
+</p>
 
+<p align="center">
+  <img src="./057b39a6e9e0a6070563e7d1fe44e378-removebg-preview.png" width="280" align="left">
 
-<p style="font-size: 20px; line-height: 1.6;">
-  <br>
-  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀&nbsp;&nbsp;&nbsp;&nbsp;<span style="color: #f5f0dd;">ssamu</span>&nbsp;&nbsp;<span style="color: #7fd955;">or</span>&nbsp;&nbsp;&nbsp;&nbsp;<span style="color: #f5f0dd;">bluey</span><br>
-  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀<span style="color: #f5f0dd;">૮ • ﻌ - ა</span>&nbsp;&nbsp;&nbsp;&nbsp;<span style="color: #7fd955;">minor</span>&nbsp;<span style="color: #f5f0dd;">.</span>&nbsp;<span style="color: ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀        #7fd955;">.</span>&nbsp;<span style="color: #f5f0dd;">.</span>&nbsp;<span style="color: #7fd955;">lesbian</span><br>
-⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀&nbsp;&nbsp;<span style="color: #f5f0dd;">isfp</span>&nbsp;<span style="color: #7fd955;">,,</span>&nbsp;<span style="color: #f5f0dd;">dive</span>&nbsp;<span style="color: #7fd955;">,,</span>&nbsp;<span style="color: #f5f0dd;">fearnot</span>&nbsp;<span style="color: #7fd955;">+</span>&nbsp;&nbsp;&nbsp;<span style="color: #f5f0dd;">𐂯</span>
+  <img src="https://capsule-render.vercel.app/api?type=transparent&fontColor=f5f0dd&text=%F0%9F%8C%B8%20ssamu%20or%20bluey&fontSize=20&height=35"><br>
+  <img src="https://capsule-render.vercel.app/api?type=transparent&fontColor=7fd955&text=%E0%AE%82%20%E2%80%A2%20%E0%AE%91%20-%20%E1%83%AA%EF%BD%A1%20minor%20.%20.%20.%20lesbian&fontSize=20&height=35"><br>
+  <img src="https://capsule-render.vercel.app/api?type=transparent&fontColor=f5f0dd&text=isfp%20,,%20dive%20,,%20fearnot%20%2B%20%F0%90%82%AF&fontSize=20&height=35">
 </p>
 
 <br clear="all">
+
 <p align="center">
-  <img src="./7d81cab59c7fdacbb9fa73982d406a8b (1).jpg" width="100%" alt="Header Banner">
+  <img src="./YOUR_STAR_GIF_NAME.gif" width="150" alt="leaf divider">
+</p>
 
-<br clear="all">
-
+<p align="center">
+  <img src="./7d81cab59c7fdacbb9fa73982d406a8b (1).jpg" width="100%">
+</p>
 ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀                ⠀󠀠 󠀠⠀ ⠀       
