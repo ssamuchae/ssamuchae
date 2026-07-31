@@ -12,11 +12,11 @@
   <dl>
     <dt><br></dt>
 
-$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ssamu⠀or⠀⠀bluey}$
+$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀ssamu⠀or⠀⠀bluey}$
 
-$\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀૮ • ﻌ - ა⠀⠀minor . . . lesbian}$
+$\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀⠀૮ • ﻌ - ა⠀⠀minor . . . lesbian}$
 
-$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀isfp ,, dive ,, fearnot + ⠀𐂯}$
+$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀isfp ,, dive ,, fearnot + ⠀𐂯}$
 
   </dl>
 </div>
