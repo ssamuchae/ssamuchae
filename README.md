@@ -11,9 +11,13 @@
 
   <dl>
     <dt><br></dt>
-    <dd><img src="https://capsule-render.vercel.app/api?type=transparent&fontColor=f5f0dd&text=ssamu%20or%20bluey&fontSize=20&height=35"></dd>
-    <dd><img src="https://capsule-render.vercel.app/api?type=transparent&fontColor=7fd955&text=%E0%AE%82%20%E2%80%A2%20%E0%AE%91%20-%20%E1%83%AA%EF%BD%A1%20minor%20.%20.%20.%20lesbian&fontSize=20&height=35"></dd>
-    <dd><img src="https://capsule-render.vercel.app/api?type=transparent&fontColor=f5f0dd&text=isfp%20,,%20dive%20,,%20fearnot%20%2B%20%F0%90%82%AF&fontSize=20&height=35"></dd>
+
+$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ssamu⠀or⠀⠀bluey}$
+
+$\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀૮ • ﻌ - ა⠀⠀minor . . . lesbian}$
+
+$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀isfp ,, dive ,, fearnot + ⠀𐂯}$
+
   </dl>
 </div>
 
