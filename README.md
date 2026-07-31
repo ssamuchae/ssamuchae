@@ -20,10 +20,15 @@ $\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀isfp ,, dive ,, fearnot + ⠀𐂯}$
 
 ⠀⠀⠀⠀⠀ [strawpg](https://ssamuchae.straw.page/)$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⋆}$⠀⠀⠀⠀[prns.pg](https://en.pronouns.page/@feralcritters)
 <details>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ <summary>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  pt info</summary>
-You can add text within a collapsed section.
-
+  <summary>
+  ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀   $${\color{#8fdc51} \text{pt info}}$$
+  </summary>
+  
+  This is the hidden text body inside the drop-down.
 </details>
+
+
+
 
   </dl>
 </div>
