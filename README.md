@@ -18,7 +18,9 @@ $\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀⠀૮ • ﻌ - ა⠀⠀minor . . . les
 
 $\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀isfp ,, dive ,, fearnot + ⠀𐂯}$
 
-⠀⠀⠀⠀⠀ [strawpg](https://ssamuchae.straw.page/)$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⋆}$⠀⠀⠀⠀[prns.pg](https://en.pronouns.page/@feralcritters)
+⠀⠀⠀⠀⠀ [strawpg](https://ssamuchae.straw.page/)$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⋆}$⠀⠀⠀⠀[prns.pg](https://en.pronouns.page/@ssamuchae)
+
+$\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀@pt-friendships : bdaycake trio!}$
 
 
 
